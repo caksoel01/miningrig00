@@ -1,0 +1,2 @@
+# miningrig00
+RDPgratis
